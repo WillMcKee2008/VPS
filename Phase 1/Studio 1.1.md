@@ -1,3 +1,5 @@
+The Abyssal Plant
+
 Create a poster for a science fiction thriller set in a abandoned deep-sea power plant. Use sharp, geometric lines from the broken steel beams and cracked stone and rusted metal cut diagonally across the top of the poster. 
 Use organic contour lines to create the figures of large sea monsters as they curve towards the center of the viewer's attention as they pull their attention downward. The primary shapes that will dominate the space are the 
 fins of the sea monsters at the bottom of the poster that are curving and a glowing byproduct trace of glowing mist. For the last primary shape, it is the huge hourglass shaped power plant surrounded by deep, dark, blinding 
